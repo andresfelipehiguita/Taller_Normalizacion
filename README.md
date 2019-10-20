@@ -10,3 +10,6 @@ Andres Felipe Higuita Maturana
 John Ramos
 
 Grupo BDI104-3
+
+enlace del video de la sustentación
+https://drive.google.com/drive/folders/1U7p7QlhiInT-uA-rcMHI-CDxxJ85kY2p?usp=sharing
